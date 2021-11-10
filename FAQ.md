@@ -2,5 +2,5 @@
 - 📫 You can contact us on our email adress: zinzincoin.crypto@gmail.com
 
 <!---
-JOIN OUR DISCORD SERVER
+JOIN OUR DISCORD SERVER:
 --->
